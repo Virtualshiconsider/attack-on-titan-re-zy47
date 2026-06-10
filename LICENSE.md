@@ -1,4 +1,4 @@
-
+shrink for brainrots new Scripts is the best shrink for brainrots Script, featuring auto-heal and undetectable. Safe and powerful for all your needs.
 
 
 
